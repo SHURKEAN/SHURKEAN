@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am studying computer science <br>
+I am studying computer science at the univerity of <br>Debrecen</br> <br>
 
 
 ## 🌐 Socials:
