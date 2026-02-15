@@ -1,4 +1,4 @@
-# 💫 Hi I'am Ilham Gafarov
+# 💫 Hi I'm Ilham Gafarov
 I am a third-year student at the University of Debrecen, passionate about learning and growing in the evolving field of technology. With strong English proficiency, demonstrated by an advanced-level language certification, I am confident in my ability to communicate effectively in diverse and professional environments.<br>
 
 
